@@ -39,7 +39,7 @@
 
 点击访问：<a href="https://hl419.pages.dev/">黑料社今日黑料首页</a>
 
-点击访问：<a href="https://pi07.pages.dev/">近期热门吃瓜事件9</a>
+点击访问：<a href="https://pi07.pages.dev/">近期热门吃瓜事件</a>
 
 点击访问：<a href="https://hl389.pages.dev/">黑料最新</a>
 
